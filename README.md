@@ -1,1 +1,0 @@
-# Object-Oriented-Exercise-From-WQU
